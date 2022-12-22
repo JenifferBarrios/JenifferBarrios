@@ -4,3 +4,4 @@
 - 💞️ Me gusta cocinar, viajar y compartir con mi familia.
 
 
+![]("C:\Users\LABORATORIA\Pictures\fcb7f712c7361a820ff6a7bf6c1c01f1.jpg")
